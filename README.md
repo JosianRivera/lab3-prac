@@ -226,7 +226,7 @@ No really, why are you still here?
 
 
 
-Shluldn't you be practising some programming instead of reading this?
+Shouldn't you be practising some programming instead of reading this?
 
 
 
